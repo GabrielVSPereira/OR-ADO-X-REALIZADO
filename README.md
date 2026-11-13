@@ -1,1 +1,0 @@
-# OR-ADO-X-REALIZADO
